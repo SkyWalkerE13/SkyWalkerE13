@@ -4,7 +4,7 @@
 - 💞️ I’m looking to collaborate with scientists to make quantum computing
 - 📫 How to reach me, bru just text me
 - 😄 Pronouns: Hee/hee
-- ⚡ Fun fact: I'm only 16 y.o
+- ⚡ Fun fact: I'm only 17 y.o
 
 <!---
 SkyWalkerE13/SkyWalkerE13 is a ✨ special ✨ repository because its `README.md` (this file) appears on your GitHub profile.
